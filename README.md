@@ -3,7 +3,7 @@
 
 <p align="left">
   <a href="https://e26sreekanths-creator.github.io/SS/"><strong>🌐 View Live Portfolio Website</strong></a> | 
-  <a href=e26sreekanths@iimidr.ac.in > 📩 Email- e26sreekanths@iimidr.ac.in</a> | 
+  <a href=e26sreekanths@iimidr.ac.in > 📩 Email e26sreekanths@iimidr.ac.in</a> | 
   <a href="https://linkedin.com/in/sreekanthsathyan">🔗 LinkedIn</a> | 
   <a href=+91-7012860879 >📞 Mobile +91-7012860879</a> | 
 </p>
