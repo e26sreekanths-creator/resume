@@ -1,16 +1,17 @@
 # Sreekanth S
-### Techno-Commercial Professional | MBA Candidate at IIM Indore
+### Techno-Commercial Professional | MBA-IIM Indore
 
 <p align="left">
   <a href="https://e26sreekanths-creator.github.io/SS/"><strong>🌐 View Live Portfolio Website</strong></a> | 
-  <a href="mailto:e26sreekanths@iimidr.ac.in">📩 Email</a> | 
-  <a href="https://linkedin.com/in/sreekanthsathyan">🔗 LinkedIn</a>
+  <a href=e26sreekanths@iimidr.ac.in > 📩 Email- e26sreekanths@iimidr.ac.in</a> | 
+  <a href="https://linkedin.com/in/sreekanthsathyan">🔗 LinkedIn</a> | 
+  <a href=+91-7012860879 >📞 Mobile +91-7012860879</a> | 
 </p>
 
 ---
 
 ## 🚀 About Me
-I am a mechanical engineer turned management professional with 7+ years of experience in **Strategic Sourcing, Procurement, and Supply Chain Management** within the Public Sector. Currently, I am elevating my techno-commercial expertise through the **Executive Post Graduate Programme (EPGP) at IIM Indore**.
+I am a mechanical engineer turned management professional with 7 years of experience in **Strategic Sourcing, Procurement, and Supply Chain Management** within the Public Sector. Currently, I am elevating my managerial expertise through the **Executive Post Graduate Program (One Year Full-Time MBA)  at IIM Indore**.
 
 - 🔭 **Current Focus:** Advanced Management & Organizational Development.
 - ⚙️ **Expertise:** SAP (ERP), CAPEX Procurement, Contract Management, and Cost Optimization.
@@ -30,7 +31,7 @@ I am a mechanical engineer turned management professional with 7+ years of exper
 
 ## 🎓 Education
 
-- **IIM Indore**: Executive Post Graduate Programme in Management (EPGP) | *2026 – 2027*
+- **IIM Indore**: Executive Post Graduate Programme in Management (One Year Full-Time MBA)  | *2026 – 2027*
 - **Amrita Vishwa Vidyapeetham**: B.Tech in Mechanical Engineering | *2014 – 2018*
 
 ---
